@@ -1,7 +1,7 @@
 #
 # 具生理訊號感測之智慧床墊設計
 
-http://v.youku.com/v_show/id_XMzYxMzk2Nzc3Ng==.html?spm=a2h3j.8428770.3416059.1
+https://v.youku.com/v_show/id_XMzY4NTIwNDIwOA==.html?spm=a2h3j.8428770.3416059.1
 
 # Introduction
 
